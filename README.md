@@ -86,7 +86,10 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 # Quote from others
 
-There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium**   
+There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium** 
+
+-\ HTG, 2021 -
+
 ---
 
 That's all! Arigatou~ ^^
