@@ -83,10 +83,14 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 "Smart people always try to protect the environment, stupid people are those who constantly destroy the environment without thinking deeply."
     
 "Tình cảm giữa bậc phụ huynh và con cái chỉ đẹp khi còn bên nhau, đến lúc mất nhau rồi thì đó cũng chỉ còn là cát bụi" ("The connection between parents and children are only beautiful if they can understand together, if they lost it, then it'll just be the sand...")
-    
+
+# Quote from others
+
+There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium**   
 ---
 
 That's all! Arigatou~ ^^
+
 
 <!---
 greenmg2003/greenmg2003 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
