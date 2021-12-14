@@ -11,7 +11,7 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Gender: ♂️ , straight
 
-- Age: **17** (born in 2003)
+- Age: **18** (born in 2003)
 
 - Birthday: Dec. 12th
 
@@ -88,7 +88,11 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium** 
 
-- HTG, 2021 -
+\- HTG, 2021 -
+
+"In every single life, everything can't be happened flawlessly as their wish"
+
+\- Thori -
 
 ---
 
