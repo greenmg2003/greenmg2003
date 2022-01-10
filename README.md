@@ -19,7 +19,7 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Comes from: Viet Nam
 
-- Crush (aka senpai): Hikari Richiumu
+- Crush (aka senpai): [Hikari Richiumu](https://github.com/hikari2006)
 
 ## Contact me
 
