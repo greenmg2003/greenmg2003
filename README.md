@@ -21,6 +21,12 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Crush (aka senpai): Hikari Richiumu
 
+## Contact me
+
+- YouTube: https://www.youtube.com/channel/UCk6VSfZ_9eVw89tzym4Jzfw
+
+- Facebook: https://www.facebook.com/AlphaGreenMg
+
 ## Favorites
 - Subject: A00 (Maths, Physics, Chemistry), IT
 
