@@ -27,6 +27,12 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Facebook: https://www.facebook.com/AlphaGreenMg
 
+- osu! mutual link: https://osu.ppy.sh/users/22646653
+
+## Current project:
+
+- osu! Mg - Bring Gacha Club into osu! skinning set: https://github.com/greenmg2003/osu-Mg-skin
+
 ## Favorites
 - Subject: A00 (Maths, Physics, Chemistry), IT
 
