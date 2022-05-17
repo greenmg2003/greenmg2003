@@ -11,7 +11,7 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Gender: ♂️ , straight
 
-- Age: **18** (born in 2003)
+- Age: **19** (born in 2003)
 
 - Birthday: Dec. 12th
 
