@@ -29,6 +29,10 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - osu! mutual link: https://osu.ppy.sh/users/22646653
 
+- Twitter: https://twitter.com/Green_Mg_2003
+
+- Reddit: https://www.reddit.com/user/AlphaGreenMg
+
 ## Current project:
 
 - osu! Mg - Bring Gacha Club into osu! skinning set: https://github.com/greenmg2003/osu-Mg-skin
@@ -105,6 +109,10 @@ There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere
 "In every single life, everything can't be happened flawlessly as their wish"
 
 \- Thori -
+
+"Go touch grass before playing"
+
+\- Almost every osu! player -
 
 ---
 
