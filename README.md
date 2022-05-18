@@ -92,7 +92,7 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 # Motto
     
-"A useless nature cat-fox human who wanna be more creative and more extrovert (':"
+"A useless nature halcyon-catboy who wanna be more creative and more extrovert (':"
     
 "Be Ourselves. Kelp Calm. And Stay Peacefully."
     
