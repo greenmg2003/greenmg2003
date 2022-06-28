@@ -23,6 +23,8 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 ## Contact me
 
+- Discord account: Hikari Maguneshiumu#3460
+
 - YouTube: https://www.youtube.com/channel/UCk6VSfZ_9eVw89tzym4Jzfw
 
 - Facebook: https://www.facebook.com/AlphaGreenMg
