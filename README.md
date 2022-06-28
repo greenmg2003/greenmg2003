@@ -25,6 +25,8 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Discord account: Hikari Maguneshiumu#3460
 
+- Workshop palace: https://discord.gg/B9VjFgEdXy
+
 - YouTube: https://www.youtube.com/channel/UCk6VSfZ_9eVw89tzym4Jzfw
 
 - Facebook: https://www.facebook.com/AlphaGreenMg
