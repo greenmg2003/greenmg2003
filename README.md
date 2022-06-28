@@ -5,7 +5,7 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - My official nickname: Alpha Green Mg (Hikari Maguneshiumu)
 
-- Aliases: Mg, Magnesium, Alpha Mg, Green Mg
+- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun, Alpha
 
 - My pronouns: he/him
 
