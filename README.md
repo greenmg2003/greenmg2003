@@ -31,15 +31,13 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Facebook: https://www.facebook.com/AlphaGreenMg
 
-- osu! mutual link: https://osu.ppy.sh/users/22646653
-
 - Twitter: https://twitter.com/Green_Mg_2003
 
 - Reddit: https://www.reddit.com/user/AlphaGreenMg
 
 ## Current project:
 
-- osu! Mg - Bring Gacha Club into osu! skinning set: https://github.com/greenmg2003/osu-Mg-skin
+- None
 
 ## Favorites
 - Subject: A00 (Maths, Physics, Chemistry), IT
@@ -59,6 +57,8 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
         + LeaF's music
         
         + Lime - Chronomia
+        
+        + Artcore musics
         
 - Elements: Nature, Water, Fire
 
@@ -92,8 +92,6 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
     
 - Games: Free Fire, PUBG,...
     
-- Hates most: ***Rolling Infinity Apk beggars, spreaders.***
-
 # Motto
     
 "A useless nature halcyon-catboy who wanna be more creative and more extrovert (':"
@@ -113,10 +111,6 @@ There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere
 "In every single life, everything can't be happened flawlessly as their wish"
 
 \- Thori -
-
-"Go touch grass before playing"
-
-\- Almost every osu! player -
 
 ---
 
