@@ -77,8 +77,6 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 - Cockroach and thunder (F--- off them, I hate it! >.<)
     
 - Toxic behaviors
-    
-- Subject: C00 (Literature, Geometry, History) (Reaaaaaally boringggggg, and I'm suck at it)
 
 - Chemistry element: None
     
