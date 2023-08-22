@@ -1,7 +1,7 @@
 Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
 
 ## Basic information
-- My real name: Nguyễn Gia Hy
+- My real name: I refrain to do so... I hate being stalked. xd
 
 - My official nickname: Alpha Green Mg (Hikari Maguneshiumu)
 
