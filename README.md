@@ -37,7 +37,7 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 ## Current project:
 
-- None
+- [osu! Mg](https://github.com/greenmg2003/osu-Mg-skin)
 
 ## Favorites
 - Subject: A00 (Maths, Physics, Chemistry), IT
