@@ -1,7 +1,11 @@
+[IMPORTANT NOTICE]: My account is being flagged just recently. Please wait for the reinstatement decision. Thank you.
+
 Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
 
+You can also check my clean profile at: https://e-z.bio/alphamg2003
+
 ## Basic information
-- My real name: I refrain to do so... I hate being stalked. xd
+- My real name: I refrain to do so... I hate being doxxed. xd
 
 - My official nickname: Alpha Green Mg (Hikari Maguneshiumu)
 
@@ -25,13 +29,13 @@ Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce 
 
 - Discord account: Hikari Maguneshiumu#3460 or alpha_mg
 
-- Workshop palace: https://discord.gg/B9VjFgEdXy
+- Workshop palace: \<Closed>
 
 - YouTube: https://www.youtube.com/channel/UCk6VSfZ_9eVw89tzym4Jzfw
 
 - Facebook: https://www.facebook.com/AlphaGreenMg
 
-- Twitter: https://twitter.com/Green_Mg_2003
+- Twitter: Wiped, I'm not going back
 
 - Reddit: https://www.reddit.com/user/AlphaGreenMg
 
