@@ -1,4 +1,4 @@
-[IMPORTANT NOTICE]: My account is being flagged just recently. Moved to new GitHub account for continual 
+[IMPORTANT NOTICE]: My account is being flagged just recently. Moving to alphamg2003 account for continual
 
 Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
 
