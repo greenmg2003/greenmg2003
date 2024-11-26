@@ -1,4 +1,4 @@
-[IMPORTANT NOTICE]: My account is being flagged just recently. Moving to alphamg2003 account for continual
+[IMPORTANT NOTICE]: My account is being flagged just recently. Temporarily moving to alphamg2003 account for continual. After reinstatement is done, I'll come back here for project continuation!
 
 Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
 
