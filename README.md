@@ -41,7 +41,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 ## Current project:
 
-- [osu! Mg](https://github.com/greenmg2003/osu-Mg-skin)
+- [osu! Mg](https://github.com/alphamg2003/osu-mg-reload)
 
 ## Favorites
 - Subject: A00 (Maths, Physics, Chemistry), IT
