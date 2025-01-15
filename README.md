@@ -9,7 +9,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - My official nickname: Alpha Green Mg (Hikari Maguneshiumu)
 
-- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun, Alpha
+- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun, 
 
 - My pronouns: he/him
 
