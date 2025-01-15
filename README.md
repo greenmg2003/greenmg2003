@@ -1,6 +1,6 @@
-[IMPORTANT NOTICE]: My account is being flagged just recently. Temporarily moving to alphamg2003 account for continual. After reinstatement is done, I'll come back here for project continuation!
+[Account Status]: Everything is resolved!!
 
-Konichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
+Konnichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
 
 You can also check my clean profile at: https://e-z.bio/alphamg2003
 
