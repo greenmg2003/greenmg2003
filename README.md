@@ -1,13 +1,21 @@
-[Account Status]: Everything is resolved!!
+Account Status: Stable
 
-Konnichiwa everyone, I am Hikari Maguneshiumu (Alpha Green Mg)!  Lemme introduce myself! :>
+Profile last update: 03/05/2025 
+
+(DD/MM/YYYY format)
+
+---
+
+みんなさんこんにちわ！わたし は マグネシウムです。  
+
+Hello there everyone, I'm Hikari Maguneshiumu/Alpha Green Mg! Lemme introduce myself here :>
 
 You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 ## Basic information
 - My real name: I refrain to do so... I hate being doxxed. xd
 
-- My official nickname: Alpha Green Mg (Hikari Maguneshiumu)
+- My official name that you can call: Alpha Green Mg (Hikari Maguneshiumu) (Naming system: Family Name - First Name)
 
 - Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun, 
 
@@ -15,7 +23,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Gender: ♂️ , straight
 
-- Age: **19** (born in 2003)
+- Age: **22** (born in 2003)
 
 - Birthday: Dec. 12th
 
@@ -23,13 +31,13 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Comes from: Viet Nam
 
-- Crush (aka senpai): [Hikari Richiumu](https://github.com/hikari2006)
+- Relationship: Taken by [Hikari Richiumu](https://github.com/hikari2006)
 
 ## Contact me
 
 - Discord account: Hikari Maguneshiumu#3460 or alpha_mg
 
-- Workshop palace: https://discord.gg/vCxKrf7nBd
+- Workshop palace: https://discord.gg/kqeVUq9tXs
 
 - YouTube: https://www.youtube.com/channel/UCk6VSfZ_9eVw89tzym4Jzfw
 
@@ -39,13 +47,13 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Reddit: https://www.reddit.com/user/AlphaGreenMg
 
+- BlueSky: https://bsky.app/profile/alphamg2003.bsky.social
+
 ## Current project:
 
 - [osu! Mg](https://github.com/alphamg2003/osu-mg-reload)
 
 ## Favorites
-- Subject: A00 (Maths, Physics, Chemistry), IT
-
 - Hobbies: Drawing, enjoying musics, chatting on Discord with friends, solving Math puzzles
 
 - Colours: 🟢 , 🔵
@@ -68,13 +76,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Season: Winter
 
-- Chemistry Elements: Zn, Li, Mg, Ba, Ni, ...
-
-- Games: Dancing Line, osu!, Minecraft, Gacha Club, Rolling Sky,....
-
-## Characteristics
-*Alpha Green Mg*: Happy (15% chance to be sad), Kind, Calm, Talkative, Extrovert, Easily got broken heart, have 5% chance to be triggered
-*Beta Purple Mg*: Happy (5% chance to be sad), Kind, Calm, but Shy, Introvert, have 10% chance to be aggressive
+- Games: osu!, Dear My Cat, Cats & Soup: Magic Recipe, Dancing Line, Minecraft, Gacha Club, ...
 
 ## Disfavors
 
@@ -91,18 +93,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 - My family
     
 - Music: K-Pop music
-    
-- Games: Free Fire, PUBG,...
-    
-# Motto
-    
-"A useless nature halcyon-catboy who wanna be more creative and more extrovert (':"
-    
-"Be Ourselves. Kelp Calm. And Stay Peacefully."
-    
-"Smart people always try to protect the environment, stupid people are those who constantly destroy the environment without thinking deeply."
-    
-"Tình cảm giữa bậc phụ huynh và con cái chỉ đẹp khi còn bên nhau, đến lúc mất nhau rồi thì đó cũng chỉ còn là cát bụi" ("The connection between parents and children are only beautiful if they can understand together, if they lost it, then it'll just be the sand...")
+
 
 # Quote from others
 
@@ -116,7 +107,7 @@ There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere
 
 ---
 
-That's all! Arigatou~ ^^
+That's all! ありがとう！ ^^
 
 
 <!---
