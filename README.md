@@ -1,6 +1,6 @@
 Account Status: Stable
 
-Profile last update: 03/05/2025 
+Profile last update: 22/05/2025 
 
 (DD/MM/YYYY format)
 
