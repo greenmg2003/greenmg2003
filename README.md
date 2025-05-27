@@ -51,6 +51,8 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - BlueSky: https://bsky.app/profile/alphamg2003.bsky.social
 
+- Marshmallow: https://marshmallow-qa.com/897b004nyhgkrfv?t=dvxkBN&utm_medium=url_text&utm_source=promotion
+
 ## Current project:
 
 - [osu! Mg - Season 1](https://github.com/alphamg2003/osu-mg-reload)
