@@ -14,7 +14,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 ![](https://osu-sig.vercel.app/card?user=Alpha%20Green%20Mg&mode=catch&lang=en&animation=true&hue=125) 
 
-[![Mg's GitHub stats](https://github-readme-stats.vercel.app/api?username=greenmg2003)](https://github.com/anuraghazra/github-readme-stats)
+![Mg's GitHub stats](https://github-readme-stats.vercel.app/api?username=greenmg2003&show_icons=true&theme=merko)
 
 ## Basic information
 - My real name: I refrain to do so... I hate being doxxed. xd
