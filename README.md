@@ -59,7 +59,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - [osu! Mg - Season 1](https://github.com/alphamg2003/osu-mg-reload)
 
-![[Project Banner Season 1](https://github.com/user-attachments/assets/a769a7f7-a899-40cf-9699-467ea15445b5)](https://github.com/alphamg2003/osu-mg-reload)
+![Project Banner Season 1](https://github.com/user-attachments/assets/a769a7f7-a899-40cf-9699-467ea15445b5)]
 
 ## Favorites
 - Hobbies: Drawing, enjoying musics, chatting on Discord with friends, solving Math puzzles
