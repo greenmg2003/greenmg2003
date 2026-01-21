@@ -6,7 +6,7 @@ Profile last update: 22/05/2025
 
 ---
 
-みんなさんこんにちわ！わたし は マグネシウムです。  
+みんなさんこんにちは！わたし は マグネシウムです。  
 
 Hello there everyone, I'm Hikari Maguneshiumu/Alpha Green Mg! Lemme introduce myself here :>
 
