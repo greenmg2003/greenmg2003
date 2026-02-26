@@ -35,7 +35,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Comes from: Viet Nam
 
-- Relationship: Taken by [Hikari Richiumu](https://github.com/hikari2006)
+- Relationship: One-sided towards [Hikari Richiumu](https://github.com/hikari2006)
 
 ## Contact me
 
