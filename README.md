@@ -1,6 +1,6 @@
 Account Status: Stable
 
-Profile last update: 22/05/2025 
+Profile last update: 27/02/2026
 
 (DD/MM/YYYY format)
 
@@ -12,16 +12,13 @@ Hello there everyone, I'm Hikari Maguneshiumu/Alpha Green Mg! Lemme introduce my
 
 You can also check my clean profile at: https://e-z.bio/alphamg2003
 
-![](https://osu-sig.vercel.app/card?user=Alpha%20Green%20Mg&mode=catch&lang=en&animation=true&hue=125) 
-
-![Mg's GitHub stats](https://github-readme-stats.vercel.app/api?username=greenmg2003&show_icons=true&theme=merko)
 
 ## Basic information
 - My real name: I refrain to do so... I hate being doxxed. xd
 
 - My official name that you can call: Alpha Green Mg (Hikari Maguneshiumu) (Naming system: Family Name - First Name)
 
-- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun, 
+- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun
 
 - My pronouns: he/him
 
@@ -35,7 +32,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Comes from: Viet Nam
 
-- Relationship: One-sided towards [Hikari Richiumu](https://github.com/hikari2006)
+- Relationship: Was taken by [Hikari Richiumu](https://github.com/hikari2006), now no more
 
 ## Contact me
 
@@ -55,14 +52,14 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Marshmallow: https://marshmallow-qa.com/897b004nyhgkrfv?t=dvxkBN&utm_medium=url_text&utm_source=promotion
 
-## Current project:
+## Completed project:
 
 - [osu! Mg - Season 1](https://github.com/alphamg2003/osu-mg-reload)
 
 ![Project Banner Season 1](https://github.com/user-attachments/assets/a769a7f7-a899-40cf-9699-467ea15445b5)
 
 ## Favorites
-- Hobbies: Drawing, enjoying musics, chatting on Discord with friends, solving Math puzzles
+- Hobbies: Drawing, enjoying musics, chatting on Discord with friends, writing stories
 
 - Colours: 🟢 , 🔵
 
