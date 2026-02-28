@@ -48,8 +48,6 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Reddit: https://www.reddit.com/user/AlphaGreenMg
 
-- BlueSky: https://bsky.app/profile/alphamg2003.bsky.social
-
 - Marshmallow: https://marshmallow-qa.com/897b004nyhgkrfv?t=dvxkBN&utm_medium=url_text&utm_source=promotion
 
 ## Completed project:
@@ -61,7 +59,7 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 ## Favorites
 - Hobbies: Drawing, enjoying musics, chatting on Discord with friends, writing stories
 
-- Colours: 🟢 , 🔵
+- Colours: 🟢 
 
 - Music:
 
@@ -77,11 +75,11 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
         
         + Artcore musics
         
-- Elements: Nature, Water, Fire
+- Elements: Nature, Water, Fire, Frost
 
 - Season: Winter
 
-- Games: osu!, Dear My Cat, Cats & Soup: Magic Recipe, Dancing Line, Minecraft, Gacha Club, ...
+- Games: osu!, Dear My Cat, Dancing Line, Minecraft, Gacha Club, ...
 
 ## Disfavors
 
@@ -99,10 +97,15 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
     
 - Music: K-Pop music
 
+# Motto
+    
+"Smart people always try to protect the environment, stupid people are those who constantly destroy the environment without thinking deeply."
+    
+"The connection between the couple are only beautiful if they can understand together, if they lost it, then it'll just be the sand..."
 
 # Quote from others
 
-There's, Hydrogen and Helium then **Lithium** Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium** 
+There's, Hydrogen and Helium then Lithium Beryllium; Boron Carbon everywhere, with Nitrogen all through the air, with Oxygen so you can breath and Fluorine for your breathy teeth; Neon to light up the signs; Sodium for salty times; **Magnesium** 
 
 \- HTG, 2021 -
 
