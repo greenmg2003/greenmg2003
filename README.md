@@ -8,7 +8,7 @@ Profile last update: 27/02/2026
 
 (みんなさんこんにちは！わたし は マグネシウムです。)  
 
-みんなさん こんにちわ, わたし は おうりつ マグネシウム です。
+みんなさん こんにちわ！ わたし は **おうりつ マグネシウム** です。
 
 Hello there everyone, I'm Ouritsu Maguneshiumu (Hikari Maguneshiumu)/Alpha Green Mg! Lemme introduce myself here :>
 
