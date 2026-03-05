@@ -6,9 +6,11 @@ Profile last update: 27/02/2026
 
 ---
 
-みんなさんこんにちは！わたし は マグネシウムです。  
+(みんなさんこんにちは！わたし は マグネシウムです。)  
 
-Hello there everyone, I'm Hikari Maguneshiumu/Alpha Green Mg! Lemme introduce myself here :>
+みんなさん こんにちわ, わたし は おうりつ マグネシウム です。
+
+Hello there everyone, I'm Ouritsu Maguneshiumu (Hikari Maguneshiumu)/Alpha Green Mg! Lemme introduce myself here :>
 
 You can also check my clean profile at: https://e-z.bio/alphamg2003
 
@@ -16,9 +18,9 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 ## Basic information
 - My real name: I refrain to do so... I hate being doxxed. xd
 
-- My official name that you can call: Alpha Green Mg (Hikari Maguneshiumu) (Naming system: Family Name - First Name)
+- My official name that you can call: Alpha Green Mg (Ouritsu Maguneshiumu/Hikari Maguneshiumu) (Naming system: Family Name - First Name)
 
-- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Hikari-kun, Mg-kun
+- Aliases: Mg, Magnesium, Alpha Mg, Green Mg, Magnesi, Magune, Maguneshiumu, Ouritsu-kun, Mg-kun
 
 - My pronouns: he/him
 
