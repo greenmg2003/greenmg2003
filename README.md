@@ -4,7 +4,7 @@ Profile last update: 06/03/2026
 
 (DD/MM/YYYY format)
 
-[IMPORTANT - Before you advance]: 
+## [IMPORTANT - Before you advance]: 
 
 **Before you decide to step in my life:** (If you are not girl, skip)
 
