@@ -1,6 +1,6 @@
 Account Status: Stable
 
-Profile last update: 06/03/2026
+Profile last update: 24/03/2026
 
 (DD/MM/YYYY format)
 
@@ -42,13 +42,13 @@ You can also check my clean profile at: https://e-z.bio/alphamg2003
 
 - Comes from: Viet Nam
 
-- Relationship: Was taken by [Hikari Richiumu](https://github.com/hikari2006), now no more
+- Relationship: Single (Was taken by [Hikari Richiumu](https://github.com/hikari2006) before)
 
 ## Contact me
 
 - Discord account: Hikari Maguneshiumu#3460 or alpha_mg
 
-- Workshop palace: https://discord.gg/kqeVUq9tXs
+- Workshop palace: https://discord.gg/8wTpg2tADe
 
 - YouTube: https://www.youtube.com/channel/UCk6VSfZ_9eVw89tzym4Jzfw
 
